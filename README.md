@@ -8,5 +8,5 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I don't have girlfriend :)
 
--[!](https://img.thuthuatphanmem.vn/uploads/2018/10/26/anh-gif-dep-nhat_054957921.gif)
+![](https://img.thuthuatphanmem.vn/uploads/2018/10/26/anh-gif-dep-nhat_054957921.gif)
 -->
